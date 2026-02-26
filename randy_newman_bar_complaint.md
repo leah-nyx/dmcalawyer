@@ -88,14 +88,6 @@ Encouraging suicide is a **felony** under **[California Penal Code § 401(a)](ht
 
 On December 1, 2025, Newman engaged in an argument with another user on the [Discord server "Really Cool News"](https://discord.com/invite/REBTarYPDY) & told the user "Go Kill yourself," followed by "Everyone will be happier." Discord moderators deleted the message for violating terms of service. The deleted message is visible in a quote reply that reads "Original message was deleted." See Exhibit 5.
 
-
-
-just stating the obvious." See Exhibit 8.
-
-<a href="./exhibit-08-just-stating-the-obvious.jpg"><img src="./thumbs/exhibit-08-just-stating-the-obvious.jpg" width="400" alt="Exhibit 8"></a>
-
-
-
 <a href="./exhibit-05-go-kill-yourself-message.png"><img src="./thumbs/exhibit-05-go-kill-yourself-message.png" width="400" alt="Exhibit 5"></a>
 
 When confronted by other users, Newman confirmed the statement & doubled down. He wrote: "Violation of what? This is fight zone. I didn't threaten him, I offered him a suggestion to end his miserable existence. Unfortunately, I doubt he will take my advice." See Exhibit 6.
@@ -114,7 +106,9 @@ See Exhibit 7.
 
 <a href="./exhibit-07-disbarment-concern-private-chat.jpg"><img src="./thumbs/exhibit-07-disbarment-concern-private-chat.jpg" width="400" alt="Exhibit 7"></a>
 
-Despite this acknowledged risk, Newman repeated the conduct. In a subsequent conversation, he stated: "I didn't threaten him. I suggested his family would be happier if he killed himself which is probably true.
+Despite this acknowledged risk, Newman repeated the conduct. In a subsequent conversation, he stated: "I didn't threaten him. I suggested his family would be happier if he killed himself which is probably true. I'm just stating the obvious." See Exhibit 8.
+
+<a href="./exhibit-08-just-stating-the-obvious.jpg"><img src="./thumbs/exhibit-08-just-stating-the-obvious.jpg" width="400" alt="Exhibit 8"></a>
 
  On January 2, 2026, Newman told the same individual "There is still time if you know what I mean." See Exhibit 9.
 
